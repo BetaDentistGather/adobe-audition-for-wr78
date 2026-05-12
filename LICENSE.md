@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for PC | Adobe Audition for Windows with Adobe Audition for PC | Adobe Audition for Windows professional Script: effects-library & audio-restoration, the #1
 
 
 
